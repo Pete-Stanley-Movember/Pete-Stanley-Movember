@@ -1,4 +1,4 @@
-## @automatepete 👋
+## @automatepete
 
 🌐 Find me online: [petestanley.com](pete.stanley.com)
 
